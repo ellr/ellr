@@ -6,7 +6,7 @@ Let me introduce myself
 
 
 ### Current work 💡
-🚀 I am Co-Found & CTO of [Hypt](https://join-hypt.com)
+🚀 I am Co-Founder & CTO of [Hypt](https://join-hypt.com)
 
 
 ### Background 🎒
